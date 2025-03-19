@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **nniteshprasad147@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/13H8svR-jH8-fIraLygSUlP3GmieS7H-P/view?usp=sharing](https://drive.google.com/file/d/13H8svR-jH8-fIraLygSUlP3GmieS7H-P/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/13H8svR-jH8-fIraLygSUlP3GmieS7H-P/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
